@@ -4,7 +4,15 @@
 **Plot:** Wolverine is recovering from his injuries when he crosses paths with the loudmouth Deadpool. Together, they join forces to defeat a common enemy, making for an action-packed and humorous adventure.
 
 <a href="https://movieswali.xyz/deadpool-wolverine-download/" target="_blank">
+    <img src="https://apneshayar.com/wp-content/uploads/2024/02/btn_download-1.gif" alt="Image Description">
+</a>
+
+<a href="https://movieswali.xyz/deadpool-wolverine-download/" target="_blank">
     <img src="https://github.com/user-attachments/assets/4c79d1c0-2fbb-49f4-8473-a3162e780718" alt="Image Description">
+</a>
+
+<a href="https://movieswali.xyz/deadpool-wolverine-download/" target="_blank">
+    <img src="https://apneshayar.com/wp-content/uploads/2024/02/btn_download-1.gif" alt="Image Description">
 </a>
 
 
@@ -28,7 +36,7 @@
 </a>
 
 <a href="https://movieswali.xyz/deadpool-wolverine-download/" target="_blank">
-    <img src="https://media1.tenor.com/m/HLpesHa64XYAAAAC/download.gif" alt="Image Description">
+    <img src="https://apneshayar.com/wp-content/uploads/2024/02/btn_download-1.gif" alt="Image Description">
 </a>
 
 Did Wolverine fight Deadpool?
@@ -2098,3 +2106,7 @@ Deadpool 3 full movie bilibili
 Deadpool 3 full movie download filmyzilla hindi dubbed
 
 Deadpool 3 full movie download 480p
+
+<a href="https://movieswali.xyz/deadpool-wolverine-download/" target="_blank">
+    <img src="https://apneshayar.com/wp-content/uploads/2024/02/btn_download-1.gif" alt="Image Description">
+</a>
